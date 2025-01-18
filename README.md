@@ -56,6 +56,6 @@ Save your masterpiece and share it with the Sprunki community. Showcase your mus
 
 Experience the enhanced version of the iconic Phase 3! Create amazing music with improved visuals, refined sounds, and optimized gameplay. Whether you're a returning fan or new to the experience, Sprunki Phase 3 Remastered offers endless creative possibilities!
 
-[Play Sprunki Phase 3 Remastered Now - It's Free!](https://sprunkiscrunkly.com/sprunki-phase-3-remastered/#play-now)
+[Play Sprunki Phase 3 Remastered Now - It's Free!](https://sprunkiscrunkly.com/sprunki-phase-3-remastered/)
 
 Sprunki Phase 3 Remastered Community.
