@@ -2,7 +2,7 @@
 
 👉👉 Click to play: [Sprunki Phase 3 Remastered](https://sprunkiscrunkly.com/sprunki-phase-3-remastered/ "Sprunki Phase 3 Remastered")
 
-![Incredibox Banana](https://s.sprunkiscrunkly.com/img/games/sprunki-phase-3-remastered.png "Incredibox Banana")
+![Sprunki Phase 3 Remastered](https://s.sprunkiscrunkly.com/img/games/sprunki-phase-3-remastered.png "Sprunki Phase 3 Remastered")
 
 Sprunki Phase 3 Remastered - the definitive edition of the iconic Phase 3! This enhanced version brings a perfect blend of nostalgia and innovation, offering an upgraded experience while maintaining the core essence that made the original so special.
 
